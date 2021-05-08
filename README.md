@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Wambita
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning at Egerton university
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me wambitafana@gmail.com
